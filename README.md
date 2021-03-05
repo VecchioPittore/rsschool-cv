@@ -1,1 +1,1 @@
-# rsschool-cv
+ https://VecchioPittore.github.io/rsschool-cv/cv
